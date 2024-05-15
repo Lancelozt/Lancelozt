@@ -36,7 +36,7 @@
 
 - 📫 Feel free to reach me out **giovanigarcia122121@gmail.com**
 
-- 🏠 Don't hesitate to drop me a **👋** on Discord –  [1010nishant](https://discordapp.com/users/593528037459361793) my username!
+- 🏠 Don't hesitate to drop me a **👋** on Discord –  [lance_0327](https://discordapp.com/users/593528037459361793) my username!
 <!--Intro end-->
 
 
